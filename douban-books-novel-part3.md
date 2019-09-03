@@ -12,10 +12,8 @@
 - [pdf](https://pan.baidu.com/share/link?uk=3476141834&shareid=4165723548)
 
 
-- [/sharelink1227734873-35074134](https://pan.baidu.com/s/1hq2Ccmg)
+- [mobi](https://pan.baidu.com/s/1hq2Ccmg)
 
-
-- [/sharelink810418440-736186758](https://pan.baidu.com/s/1jIlfIUq)
 
 
 京华烟云（全2册）
