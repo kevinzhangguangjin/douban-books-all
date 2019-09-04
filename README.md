@@ -8,3 +8,4 @@
 - [Part 1](./douban-books-novel-part1.md)
 - [Part 2](./douban-books-novel-part2.md)
 - [Part 3](./douban-books-novel-part3.md)
+- [Part 4](./douban-books-novel-part4.md)
