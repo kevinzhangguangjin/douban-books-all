@@ -5,7 +5,7 @@
 或者大家有什么想看的书，也可以发出来。但不保证一定能找到哈。
 
 书名拼音首字母检索：
-[A - Z](./Alphabet.md)
+- [A - Z](./Alphabet.md)
 
 小说类：
 - [Part 1](./douban-books-novel-part1.md)
