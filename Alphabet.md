@@ -113,7 +113,7 @@
 - [大师和玛格丽特](./douban-books-novel-part1.md#大师和玛格丽特)
 - [动物农场](./douban-books-novel-part1.md#动物农场)
 - [大唐李白·少年游](./douban-books-novel-part2.md#大唐李白·少年游)
-- [大秦帝国·第三部 金戈铁马 中卷](./douban-books-novel-part2.md#大秦帝国·第三部 金戈铁马 中卷)
+- [大秦帝国·第三部 金戈铁马 中卷](./douban-books-novel-part2.md#大秦帝国·第三部金戈铁马中卷)
 - [大浴女](./douban-books-novel-part2.md#大浴女)
 - [钓鱼的男孩](./douban-books-novel-part2.md#钓鱼的男孩)
 - [读懂美国史，你就读懂了世界格局](./douban-books-novel-part2.md#读懂美国史，你就读懂了世界格局)
