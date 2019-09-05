@@ -12,7 +12,7 @@
 - [Part 5](./douban-books-novel-part5.md)
 
 科普类：
-- [全部](./douban_book_science.md)
+- [全部](./douban-book-science.md)
 
 经管类：
 - [全部](./douban-books-economics.md)
