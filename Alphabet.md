@@ -11,7 +11,7 @@
 - [阿加莎·克里斯蒂作品集（心之罪系列6本套装）](./douban-books-novel-part4.md#阿加莎克里斯蒂作品集心之罪系列6本套装)
 - [埃勒里·奎因侦探小说“国名系列”全集（套装共9册）](./douban-books-novel-part4.md#埃勒里奎因侦探小说国名系列全集套装共9册)
 - [Pride and Prejudice（傲慢与偏见）](./douban-books-novel-part5.md#PrideandPrejudice傲慢与偏见)
-- [《安珀志》上卷（1~5册）](./douban-books-novel-part5.md#安珀志上卷1~5册)
+- [《安珀志》上卷（1~5册）](./douban-books-novel-part5.md#安珀志上卷1_5册)
 - [奥兰多](./douban-books-novel-part5.md#奥兰多)
 - [安德的影子](./douban-books-novel-part5.md#安德的影子)
 - [安全感](./douban-books-science.md#安全感)
