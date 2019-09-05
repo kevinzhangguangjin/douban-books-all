@@ -250,7 +250,7 @@
 - [mobi](https://pan.baidu.com/s/1pLHSq4V)
 ##### 毛毛星球
 - [mobi](https://pan.baidu.com/s/1mg5lcXM)
-##### 大秦帝国·第二部 国命纵横 下卷
+##### 大秦帝国第二部国命纵横下卷
 - [pdf](https://pan.baidu.com/share/link?uk=1594477920&shareid=478744)
 - [pdf](https://pan.baidu.com/share/link?uk=1594477920&shareid=478744)
 ##### 明朝那些事儿（全7册）
@@ -299,7 +299,7 @@
 - [pdf](https://pan.baidu.com/share/link?uk=490155926&shareid=3122511703)
 ##### 谋杀启事
 - [pdf](https://pan.baidu.com/s/1gdgRrBd)
-##### 大秦帝国·第三部 金戈铁马 上卷
+##### 大秦帝国第三部金戈铁马上卷
 - [pdf](https://pan.baidu.com/share/link?uk=1594477920&shareid=476063)
 - [pdf](https://pan.baidu.com/share/link?uk=1594477920&shareid=476063)
 ##### 解体诸因
