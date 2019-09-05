@@ -19,3 +19,6 @@
 
 漫画类：
 - [全部](./douban-books-comics.md)
+
+
+[罗生门](./douban-books-novel-part1.md#罗生门)
