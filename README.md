@@ -14,5 +14,8 @@
 科普类：
 - [全部](./douban_book_science.md)
 
+经管类：
+- [全部](./douban-books-economics.md)
+
 漫画类：
 - [全部](./douban-books-comics.md)
