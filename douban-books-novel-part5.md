@@ -234,7 +234,7 @@
 ##### 有顶天家族（日本人气动漫原著小说套装2册）
 - [epub](https://pan.baidu.com/s/1nDdzT)
 - [epub](https://pan.baidu.com/share/link?uk=3038314414&shareid=907831694)
-##### Pride and Prejudice（傲慢与偏见）
+##### 傲慢与偏见
 - [mobi](https://pan.baidu.com/s/1kUviQV1)
 - [pdf](https://pan.baidu.com/share/link?uk=3842946158&shareid=1706443164)
 ##### 有顶天家族
