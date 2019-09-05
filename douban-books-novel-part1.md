@@ -201,7 +201,7 @@
 [mobi](https://pan.baidu.com/s/1jI222wu)
 [mobi](https://pan.baidu.com/s/1dE8Ubk9)
 ##### 古龙文集·小李飞刀：多情剑客无情剑（上中下）
-[/sharelink1176965178-21319750](https://pan.baidu.com/s/1b2TCOQ)
+[epub](https://pan.baidu.com/s/1b2TCOQ)
 ##### 呼兰河传（1940年初刊还原版）
 [epub](https://pan.baidu.com/s/1qAqMJ5AMbEBadZK1lUfBLQ)
 [mobi](https://pan.baidu.com/s/1sjFKfOp)
