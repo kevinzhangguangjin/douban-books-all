@@ -85,7 +85,7 @@
 - [mobi](https://pan.baidu.com/s/1kTv5HlH)
 ##### 双重赔偿
 - [mobi](https://pan.baidu.com/s/1o63WuH8)
-##### 大秦帝国·第三部 金戈铁马 中卷
+##### 大秦帝国·第三部金戈铁马中卷
 - [pdf](https://pan.baidu.com/share/link?uk=1594477920&shareid=476063)
 - [pdf](https://pan.baidu.com/share/link?uk=1594477920&shareid=476063)
 ##### 基督山伯爵
