@@ -238,8 +238,6 @@
 - [pdf](https://pan.baidu.com/s/1c0w1QfQ)
 - [pdf](https://pan.baidu.com/s/1pLb88kF)
 - [pdf](https://pan.baidu.com/s/1midmDhI)
-##### 在股市大崩溃前抛出的人
-- [setData({](https://pan.baidu.com/share/link?uk=3859858266&shareid=441586)
 ##### 战胜华尔街珍藏版
 - [pdf](https://pan.baidu.com/s/1kTgx0qF)
 ##### 搞定I无压工作的艺术最新版
